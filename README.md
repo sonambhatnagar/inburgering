@@ -5,7 +5,7 @@
 The reading section consisted of various texts with multiple-choice questions. I found the reading section relatively easy and I scored a 9. The questions were straightforward, and the practice I did with similar texts was extremely helpful. 
 
 * [Mock Test](https://drive.google.com/drive/folders/1ULiUh71yClgnTasIq82-t6n1HFlUsiuu) 
-* [this video series](https://drive.google.com/drive/folders/1ULiUh71yClgnTasIq82-t6n1HFlUsiuu) for further practice.
+* [this video series](https://www.youtube.com/watch?v=43bL6Y92u0U&list=PLUOa-qvvZolDeAYFOPqHRC9w8Nnx5cTcJ&index=13) for further practice.
 
  _"Tip is to read the questions first before starting on the paragraphs. Most students finish this section in about 15 minutes. I also completed it in 15 minutes but took extra time to double-check my answers."_
 
