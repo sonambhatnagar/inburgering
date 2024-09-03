@@ -2,7 +2,7 @@
 
 
 ## Lezen (Reading)
-The reading section consisted of various texts with multiple-choice questions. I found the reading section relatively easy. The questions were straightforward, and the practice I did with similar texts was extremely helpful. 
+The reading section consisted of various texts with multiple-choice questions. I found the reading section relatively easy and I scored a 9. The questions were straightforward, and the practice I did with similar texts was extremely helpful. 
 
 * [Mock Test](https://drive.google.com/drive/folders/1ULiUh71yClgnTasIq82-t6n1HFlUsiuu) 
 * [this video series](https://drive.google.com/drive/folders/1ULiUh71yClgnTasIq82-t6n1HFlUsiuu) for further practice.
@@ -10,7 +10,7 @@ The reading section consisted of various texts with multiple-choice questions. I
  _"Tip is to read the questions first before starting on the paragraphs. Most students finish this section in about 15 minutes. I also completed it in 15 minutes but took extra time to double-check my answers."_
 
 ## Luisteren (Listening)
-This section involved listening to dialogues and answering related questions. Practicing with listening exercises that mimic the exam format proved very beneficial. I used the following resources:
+This section involved listening to dialogues and answering related questions, and I scored an 8. Practicing with listening exercises that mimic the exam format proved very beneficial. I used the following resources:
 
 * [Listening Practice Series 1](https://www.youtube.com/watch?v=TnzORNjSbMU&list=PLXhM-IdBEVjjXsZrVZAf4X94FCBE2tq99)
 * [Listening Practice Series 2](https://www.youtube.com/watch?v=cVFjj-WBnno)
@@ -18,7 +18,7 @@ This section involved listening to dialogues and answering related questions. Pr
 
 
 ##  Schrijven (Writing)
-The writing section required composing texts based on given prompts. My extensive practice with essays and formal emails paid off. Having a strong understanding of grammar and vocabulary made this section relatively straightforward. The exam consists of four types of questions: free writing, form filling, email/advertisement/invitation writing, etc.
+The writing section required composing texts based on given prompts. My extensive practice with essays and formal emails paid off, and I scored a 9. Having a strong understanding of grammar and vocabulary made this section relatively straightforward. The exam consists of four types of questions: free writing, form filling, email/advertisement/invitation writing, etc.
 
 * [Writing Practice Resources](https://drive.google.com/drive/folders/1bJeE-7HO4ODF-nEg9LmwS8-OJoUasD2_)
 * [Grammar Lessons and Useful practice video](https://docs.google.com/document/d/1vL95gCUwCR-zqHBWGR97uymjSpswFT5e/edit)
