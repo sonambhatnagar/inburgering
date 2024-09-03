@@ -44,3 +44,6 @@ This section was the most straightforward for me, and I scored a perfect 10. My 
 * [YouTube Videos: KNM Video Playlist](https://www.youtube.com/playlist?app=desktop&list=PLXt14hMCM9FTlSmjlggFZVRHjRxfntej3)
 
 Understanding Dutch society through these resources made the KNM section engaging and manageable.
+
+## Oriëntatie Nederlandse Arbeidsmarkt (Orientation to the Dutch Labor Market): 
+I was exempt from this component, which was a relief. This exemption was based on my previous qualifications and work experience, so I didn't have to prepare for this part.
