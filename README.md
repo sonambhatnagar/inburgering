@@ -38,7 +38,7 @@ _Tips: Start with Part 2 and aim to finish it within the first 5–10 minutes. S
 This section was the most straightforward for me, and I scored a perfect 10. My knowledge of Dutch culture, history, and societal norms was enhanced by living in the country for the past 5 years. I found the following resources helpful:
 
 KNM Book: "Welcome to NL" (coming soon)
-[Sample Questions: 1000-question PDF](Oefenexamens_voor_het_KNM_examen.pdf)
-[YouTube Videos: KNM Video Playlist](https://www.youtube.com/playlist?app=desktop&list=PLXt14hMCM9FTlSmjlggFZVRHjRxfntej3)
+* [Sample Questions: 1000-question PDF](Oefenexamens_voor_het_KNM_examen.pdf)
+* [YouTube Videos: KNM Video Playlist](https://www.youtube.com/playlist?app=desktop&list=PLXt14hMCM9FTlSmjlggFZVRHjRxfntej3)
 
 Understanding Dutch society through these resources made the KNM section engaging and manageable.
